@@ -1,0 +1,1 @@
+# pratikum2_ppbl_danymuhammadsyafiq_6701213020
